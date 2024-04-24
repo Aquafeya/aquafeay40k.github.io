@@ -1,2 +1,2 @@
-# aquafeay40k.github.io
+# aquafeya40k.github.io
 Warhammer github
